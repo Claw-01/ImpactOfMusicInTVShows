@@ -20,3 +20,5 @@ But the Stranger Things' good musical taste doesn't end there, as in the Season 
 (Insertar tabla y gráfico)
 
 ![SophieEllis](img/StatsandTrendsOyentesMensualesdeSpotify-SophieEllis-Bextor.png)
+
+![WednesdayDance](https://images.immediate.co.uk/production/volatile/sites/3/2022/11/Wednesday-dance-scene-3f2956d.png?quality=90&webp=true&resize=1200,800)
