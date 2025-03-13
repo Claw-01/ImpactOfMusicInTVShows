@@ -2,7 +2,7 @@
 
 We all know the importance of soundtracks in movies and TV shows. The precision in selecting or even creating special songs for each film allows you to enjoy a unique atmosphere that makes you feel like you're inside the movie.
 
-(Insertar foto Date Movie first scene- Milkshakes)
+![DateMovie-Milkshake](https://es.web.img2.acsta.net/r_1920_1080/medias/nmedia/18/36/19/96/18611105.jpg)
 
 Sometimes, TV shows or movies allow audiences to discover existing songs.
 
