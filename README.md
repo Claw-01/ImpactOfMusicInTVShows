@@ -19,3 +19,4 @@ But the Stranger Things' good musical taste doesn't end there, as in the Season 
 ![KateBush](img/StatsandTrendsOyentesMensualesdeSpotify-KateBush.png)
 (Insertar tabla y gráfico)
 
+![SophieEllis](img/StatsandTrendsOyentesMensualesdeSpotify-SophieEllis-Bextor.png)
