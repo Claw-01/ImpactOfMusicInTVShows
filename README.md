@@ -8,8 +8,9 @@ Sometimes, TV shows or movies allow audiences to discover existing songs.
 
 Stranger Things was a phenomenon in 2016. A show inspired by the '80s, which is evident in the clothing, the home decor, and, of course, the songs the characters listened to.
 In Season 1, I think everyone agrees: we can all remember the famous song 'Should I Stay or Should I Go' by The Clash. Jonathan tells Will that the tape will 'totally change your life', and  it's with that that this song takes center stage, serving as the central theme of one of the series' scenes.
+
 ![Max-RunningUpThatHill](https://stateless-fueradefoco.storage.googleapis.com/wp-content/uploads/2022/07/30012247/image-9.png)
-(Insertar foto Max-Stranger Things)
+
 
 I checked The Clash's popularity on Spotify and found that "Should I Stay or Should I Go" is their Top 1. 
 
