@@ -16,7 +16,7 @@ I checked The Clash's popularity on Spotify and found that "Should I Stay or Sho
 
 But the Stranger Things' good musical taste doesn't end there, as in the Season 4 we were able to discover another important song that drives the plot: "Running Up That Hill" by Kate Bush. In this case, we find that song in the artist's Top 4. With Charmetric we can see the huge increase in Kate Bush's listeners in June 2022, the month in which we were able to watch Stranger Things Season 4.
 
-![KateBush2](img/StatsandTrendsOyentesMensualesdeSpotify-KateBush.png)
+![KateBush2](img/StatsandTrendsOyentesMensualesdeSpotify-KateBush2.png)
 (Insertar tabla y gráfico)
 
 ![SophieEllis](img/StatsandTrendsOyentesMensualesdeSpotify-SophieEllis-Bextor.png)
